@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @BollingerBulls10159
+- 👀 I’m interested in bull riding
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me email noturmom@gmail.com
